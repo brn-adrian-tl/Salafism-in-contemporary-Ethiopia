@@ -1,4 +1,4 @@
-#Salafism in contemporary Ethiopia (2026)
+# Salafism in contemporary Ethiopia (2026)
 
 [Read the full paper here (PDF)](https://adrian-brenner-12422308.github.io/Salafism-in-contemporary-Ethiopia/WorkingPaperSalafismInEthiopia(2026).pdf)
 
